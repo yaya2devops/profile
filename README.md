@@ -1,0 +1,1 @@
+![Thrive in the unknown](big-assets/certainty.png)
